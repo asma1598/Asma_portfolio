@@ -1,2 +1,4 @@
 # Asma_portfolio
-my first ever portfolio bismillah
+A journey to begin
+bismillahir rahmanir rahim
+
